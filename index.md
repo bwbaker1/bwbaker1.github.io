@@ -9,3 +9,11 @@ At IMPACT, I work with various Earth Science 🌎 data, products and algorithms.
 
 🎨  When I'm not working, I like running.
 
+Favorite quote
+
+Practice makes perfect but nobody's perfect so why practice?
+
+Countries visited
+
+Peru
+Iceland
