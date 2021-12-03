@@ -17,4 +17,3 @@ States visited
 
 Tennessee
 Mississippi
-Georgia
