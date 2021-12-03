@@ -13,7 +13,6 @@ Favorite quote
 
 Practice makes perfect but nobody's perfect so why practice?
 
-States visited
+Countries visited
 
-Tennessee
-Mississippi
+Peru
